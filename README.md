@@ -11,4 +11,5 @@ josefacco@prof.educacao.sp.gov.br
 
 Sou professor da disciplina de **_Tecnologia e Robótica_**
 
-![Robótina Nena Buck](https://tenor.com/pt-PT/view/1123-gif-15315203009173893389)
+![](https://tenor.com/pt-PT/view/1123-gif-15315203009173893389)
+
