@@ -11,5 +11,6 @@ josefacco@prof.educacao.sp.gov.br
 
 Sou professor da disciplina de **_Tecnologia e Robótica_**
 
-![](https://tenor.com/pt-PT/view/1123-gif-15315203009173893389)
+![](https://media.tenor.com/1IqH_lDNsQ0AAAAj/1123.gif)
+
 
